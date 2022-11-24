@@ -1,3 +1,2 @@
-# Mira los partidos del Mundial 2022 sin anuncios molestos, (una app creada exclusivamente para vos)
+# Mira los partidos del Mundial 2022 sin anuncios molestos
 
-tutorial de como usar la app en mi [tiktok](https://www.tiktok.com/@zalazarc20)
